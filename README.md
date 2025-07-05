@@ -30,7 +30,7 @@
 - 🛠️ Building strong hands-on skills through **real-world projects**
 - 💬 Improving communication & storytelling through visualizations
 
-##📫 Let’s Connect!
+## 📫 Let’s Connect!
 - 💼 [LinkedIn](https://www.linkedin.com/in/sugapriyan-m-781a47323/)
 - 📧 Mail me: [vickysugapriyan2003@gmail.com](mailto:vickysugapriyan2003@gmail.com)  
 - 🧠 Always open to learning, feedback & opportunities!
